@@ -1,2 +1,0 @@
-# Manifest
-Manifest Mind fresh
